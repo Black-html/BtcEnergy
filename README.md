@@ -64,7 +64,7 @@ This question is relevant to:
 ## 📖 Read the Full Article
 
 📚 *Read the full article on Medium:*  
-👉 [**Coming Soon** — Link will be added here after publication]
+👉 https://medium.com/@danisinator123/bitcoins-hidden-cost-unpacking-energy-trends-from-2017-to-2025-f8378b81aa66
 
 ---
 
